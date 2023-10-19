@@ -1,0 +1,1 @@
+Readme for AIR BNB WEB STATIC
